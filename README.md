@@ -1,4 +1,4 @@
-I'm a Microbiologst mainly working on Molecular Ecology project in wine, and soil
+I'm a Microbiologst mainly working on Molecular Ecology projects in wine, and soil
 - 🌱 I’m currently a Research Fellow in Soil Ecology
 
 
